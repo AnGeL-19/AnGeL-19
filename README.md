@@ -1,4 +1,4 @@
-### Hi there Angel 👋, I am FullStack Developer
+### Hi there 👋, I am Angel and FullStack Developer
 
 
 - 🔭 I’m not working
